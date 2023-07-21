@@ -6,7 +6,10 @@
 
 Шаг 1:
 Регистрация.
-![photo_2023-07-21_11-57-15](https://github.com/Mihail-007/-/assets/139038878/785aaf51-13d3-4fb2-91f8-bd88cc6f50b5)
-Шаг 2:
-Знакомство с нашим сайтом.
 
+![photo_2023-07-21_15-40-44](https://github.com/Mihail-007/-/assets/139038878/d8c20042-e9fc-4160-a68e-b604aba6b7d3)
+
+Шаг 2:
+Ознакомление с нашим сайтом.
+
+![photo_2023-07-21_15-51-30](https://github.com/Mihail-007/-/assets/139038878/599a08a4-da7d-4c86-94d0-bcdd2a6e083a)
